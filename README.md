@@ -6,15 +6,38 @@ https://lucamug.github.io/streaming/
 
 https://www.free-stock-music.com/purrple-cat-discovery.html
 
+Discovery by Purrple Cat | https://purrplecat.com
+Music promoted by https://www.free-stock-music.com
+Creative Commons Attribution-ShareAlike 3.0 Unported
+https://creativecommons.org/licenses/by-sa/3.0/deed.en_US
+
 https://www.free-stock-music.com/purrple-cat-rainbow-falls.html
+
+Rainbow Falls by Purrple Cat | https://purrplecat.com
+Music promoted by https://www.free-stock-music.com
+Creative Commons Attribution-ShareAlike 3.0 Unported
+https://creativecommons.org/licenses/by-sa/3.0/deed.en_US
 
 https://www.free-stock-music.com/purrple-cat-equinox.html
 
+Equinox by Purrple Cat | https://purrplecat.com
+Music promoted by https://www.free-stock-music.com
+Creative Commons Attribution-ShareAlike 3.0 Unported
+https://creativecommons.org/licenses/by-sa/3.0/deed.en_US
+
 https://www.free-stock-music.com/purrple-cat-pitter-patter.html
+
+Pitter Patter by Purrple Cat | https://purrplecat.com
+Music promoted by https://www.free-stock-music.com
+Creative Commons Attribution-ShareAlike 3.0 Unported
+https://creativecommons.org/licenses/by-sa/3.0/deed.en_US
 
 https://www.free-stock-music.com/jiglr-hello-world.html
 
-https://www.free-stock-music.com/ron-gelinas-chillout-lounge-curious.html
+Hello World by jiglr | https://soundcloud.com/jiglrmusic
+Music promoted by https://www.free-stock-music.com
+Creative Commons Attribution-ShareAlike 3.0 Unported
+https://creativecommons.org/licenses/by-sa/3.0/deed.en_US
 
 ## Other
 
