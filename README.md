@@ -14,7 +14,7 @@ https://lucamug.github.io/streaming/
 
 
 
-I am going 🐞LIVE🐛 in few minutes, streaming some improvements to elm-map and answering generic  questions about #elmlang:
+I am going 🐞LIVE🐛 in 30 minutes or so, streaming some improvements to elm-map and answering generic questions about #elmlang:
         
 https://lucamug.github.io/streaming/
 
