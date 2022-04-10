@@ -9,7 +9,19 @@ I am going LIVE in few minutes, streaming some improvements to elm-map and answe
 https://lucamug.github.io/streaming/
         
  #frontend #functionalprogramming #livecoding
- 
+
+---
+
+
+
+I am going 🐞LIVE🐛 in few minutes, streaming some improvements to elm-map and answering generic  questions about #elmlang:
+        
+https://lucamug.github.io/streaming/
+
+🌱🌿🐞🌳🌲🐛🌳🌱 
+        
+ #frontend #functionalprogramming #livecoding
+
 # Music
 
 https://www.free-stock-music.com/purrple-cat-discovery.html
